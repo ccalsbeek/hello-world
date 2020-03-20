@@ -1,2 +1,3 @@
 # hello-world
 Getting my feet wet
+I am practicing how to use this website and trying to figure out how to exist in this digital world...
